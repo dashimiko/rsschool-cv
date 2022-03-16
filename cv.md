@@ -1,4 +1,4 @@
-# Daria Mikolaichuk
+# Daria Mikolaichuk, 27 y.o
 
 ### Junior Frontend Developer
 
