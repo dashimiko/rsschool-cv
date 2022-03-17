@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dashimiko.github.io/rsschool-cv/
